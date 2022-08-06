@@ -1,4 +1,5 @@
-# Ziyang Wang 王梓瑒
+# Ziyang Wang 王梓瑒  
+![Image](C210A6DA-4FD6-421B-9569-CC6C5FC11597.jpeg)
 ## Background
 Master of Applied Econometrics （Monash University）  
 Bachelor of Commerce (University of Western Australia)  
